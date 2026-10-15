@@ -210,4 +210,4 @@ Flight of the Amazon Queen is offered as a full free version with all features a
 Download Flight of the Amazon Queen now and start your adventure today! Experience the magic of this classic game with all features included in a safe and secure environment.
 
 ---
-**Last updated:** 2026-10-15 06:48:58 UTC
+**Last updated:** 2026-10-15 12:21:49 UTC
